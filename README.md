@@ -1,2 +1,2 @@
 # web.software
-higher opportunities
+higher opportunitie
